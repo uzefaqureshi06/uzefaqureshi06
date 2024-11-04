@@ -1,3 +1,4 @@
+[![An image of @uzefaqureshi06's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/uzefaqureshi06)](https://holopin.io/@uzefaqureshi06)
 
 
 # 💫 About Me:
@@ -21,7 +22,6 @@
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
-[![An image of @uzefaqureshi06's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/uzefaqureshi06)](https://holopin.io/@uzefaqureshi06)
 
 
 
